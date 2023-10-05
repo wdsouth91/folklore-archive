@@ -15,9 +15,9 @@ There have been some rumors of lake monsters that originate from within this und
 ---
 
 ## Sources
-[^1]: https://www.devilslakeyachtclub.com/our-club/history#:~:text=The%20Native%20Americans%20decided%20that,known%20as%20the%20Devil's%20Chair
+[^1]: https://www.devilslakeyachtclub.com/our-club/history#:~:text=The%20Native%20Americans%20decided%20that,known%20as%20the%20Devil's%20Chair - Accessed 5 October 2023
 
-[^2]: https://www.lenconnect.com/story/news/history/2022/04/26/dan-cherry-devils-hole-one-devils-lakes-stories-legend/7438493001/
+[^2]: https://www.lenconnect.com/story/news/history/2022/04/26/dan-cherry-devils-hole-one-devils-lakes-stories-legend/7438493001/ - Accessed 5 October 2023
 
 ## Footnotes
 
