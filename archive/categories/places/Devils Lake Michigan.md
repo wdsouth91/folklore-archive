@@ -10,7 +10,7 @@ According to local legends, this lake got its name when the local native chief's
 
 There is an underwater cavern in the lake. This area has not been extensively explored but might be a sort of underwater spring.[^2]. 
 
-There have been some rumors of lake monsters that originate from within this underwater cave/cavern and that this was the *devil* from the aforementioned story that dragged the young native princess off. [^Source needed]. 
+There have been some rumors of lake monsters that originate from within this underwater cave/cavern and that this was the *devil* from the aforementioned story that dragged the young native princess off. [^Source]. 
 
 ---
 
@@ -19,7 +19,7 @@ There have been some rumors of lake monsters that originate from within this und
 
 [^2]: https://www.lenconnect.com/story/news/history/2022/04/26/dan-cherry-devils-hole-one-devils-lakes-stories-legend/7438493001/ - Accessed 5 October 2023
 
-[^Source needed]: This object needs a source!
+[^Source]: This object needs a source!
 
 ## Footnotes
 
