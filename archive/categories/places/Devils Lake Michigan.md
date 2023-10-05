@@ -19,5 +19,7 @@ There have been some rumors of lake monsters that originate from within this und
 
 [^2]: https://www.lenconnect.com/story/news/history/2022/04/26/dan-cherry-devils-hole-one-devils-lakes-stories-legend/7438493001/ - Accessed 5 October 2023
 
+[^Source needed]: This object needs a source!
+
 ## Footnotes
 
